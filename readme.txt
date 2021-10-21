@@ -5,4 +5,5 @@ It worked!
 Afternoon :-)
 >^.^< hi! >^.^<
 ^_^
-Funky chickens are strutting in the yard waiting for their dinner.
+salut!
+It's sunny here today in Cambridgeshire
