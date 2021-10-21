@@ -7,3 +7,4 @@ Afternoon :-)
 ^_^
 salut!
 It's sunny here today in Cambridgeshire
+Funny :-)
