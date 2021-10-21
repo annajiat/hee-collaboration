@@ -5,4 +5,4 @@ It worked!
 Afternoon :-)
 >^.^< hi! >^.^<
 ^_^
-salut!
+Funky chickens are strutting in the yard waiting for their dinner.
